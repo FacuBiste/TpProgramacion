@@ -36,3 +36,5 @@ Este proyecto no solo nos permitió afianzar conocimientos de programacion y tra
 Franco Enzo Petrozzelli – francopetrozzelli@gmail.com
 Facundo Bistevins – facundobistevins@gmail.com
 
+link del video: https://youtu.be/0zYnP_WdD8s?si=JOlba3BGVy0GzdUK&utm_source=MTQxZ
+
